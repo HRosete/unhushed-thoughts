@@ -1,2 +1,5 @@
-# unshushed-thoughts
-Hannah's "unshushed" thoughts. Not coding related.
+# Unhushed Thoughts
+
+✍🏻 Hannah's "unhushed" thoughts.
+
+🍃 Explore this repository's word-painted world on Instagram: @unhushed.thoughts. 
