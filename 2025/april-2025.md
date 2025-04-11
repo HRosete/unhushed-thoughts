@@ -1,8 +1,12 @@
 ## 2 April
 
-Two years ago, I have decided to work on myself and further my education. That meant leaving my job in tech and embrace the unknown in an otherwise precarious job market situation. Although I have bid goodbye to a few colleagues, I figured my farewell letter has fallen short a few words of gratitude that I eagerly wanted to convey. Two years later, I now have mustered the courage to share it.
+**Thank You Letter for ADI**
 
-Analog Devices, Inc., I truly am grateful for the formative five years of my career. Thank you for taking a shot on me during one of your University Caravans in the Philippines and took me as one of your Academe Linkage Scholars. Never would I have known that it would shape me in a way that I am now - always thinking strategically, open to diverse opinions, and excited for the possible future that tech is going to tread . It has been an honour to work alongside some of the brightest engineers in Silicon Valley and beyond. I've witnessed firsthand how they navigate complex decisions and breathe life into visionary ideas—innovations that eventually transformed our industry.
+Two years ago, I made one of the boldest decisions of my career—I left a secure role in tech to work on myself and further my education. It meant stepping into the unknown, in a different country and a precarious job market—uncertain but hopeful. Although I bid goodbye to a few colleagues, I’ve long felt that my farewell letter had fallen short to eagerly convey the gratitude I felt. Two years later, I’ve finally mustered the courage to share it.
+
+To Analog Devices, Inc.—thank you. I truly am grateful for the formative five years of my career. Thank you for taking a chance on me during one of your University Caravans in the Philippines and for selecting me as one of your Academe Linkage Scholars. Never would I have known that it would shape me in the way I am now—always thinking strategically, open to diverse opinions, and excited for the possible future that tech is going to tread.
+
+It has been an honour to work alongside some of the brightest engineers in Silicon Valley and beyond, leading the electronics industry by the reins. I've witnessed firsthand how they navigate complex decisions and breathe life into visionary ideas—innovations that eventually transformed our industry. It has been a privilege to call some of you my teammates and mentors.
 
 (To be continued...)
 
@@ -81,3 +85,4 @@ I now picture Him smiling on the other side, full of love and joy, extending His
 <sub>
 a: Numbers 13:30 AMP; b: Judges 3:1,2,4
 </sub>
+
