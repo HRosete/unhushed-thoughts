@@ -86,3 +86,23 @@ I now picture Him smiling on the other side, full of love and joy, extending His
 a: Numbers 13:30 AMP; b: Judges 3:1,2,4
 </sub>
 
+
+## 11 April
+
+(continuation of Thank You Letter for ADI)
+
+Among the projects I was involved in, working on the early stages of testing automation is one I hold especially dear. It stretched me as a professional, as I had to study and research ways to make things work given the unique situation our team was in.
+
+What made it even more exciting was the team’s eagerness to share ideas, discuss system architecture, and remain open to whatever challenges might arise—far more thrilling than any lab activity at university! We all took turns presenting the product to different audiences, while the rest of the team provided support with whatever information the speaker needed.
+
+Whether we were working across continents or just across the room, our team got the job done. Through this, I learned how to recognise each team member’s strengths and weaknesses—how to leverage those strengths for the team’s benefit, and support each other where needed.
+
+It’s true what they say: “Teamwork makes the dream work."
+
+To my mentors—whether you knew it or not—thank you for lending me your ears and your time. Beyond the technical knowledge you imparted, I learned how to approach learning itself: continuously, strategically, and with purpose. These thought processes—these habits of mind—are shaped only through repeated exposure to discomfort and the unknown, and choosing to do the “thing” anyway.
+
+I believe anyone can learn anything through sheer effort and determination, although it takes time. But through your mentorship and advice, even a novice like me was able to soar with flying colours. Success is never achieved alone; sometimes, it takes standing on the shoulders of giants.
+
+Though I’ve moved on geographically, ADI will always be a part of my story. I carry the lessons with me and remain a proud alum. I’d also like to extend my congratulations to ADI on its 60th year as a forerunner in technology. Wishing the company continued success and innovation in the years ahead.
+
+Thank you again—for everything.
