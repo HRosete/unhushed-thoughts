@@ -106,3 +106,44 @@ I believe anyone can learn anything through sheer effort and determination, alth
 Though I’ve moved on geographically, ADI will always be a part of my story. I carry the lessons with me and remain a proud alum. I’d also like to extend my congratulations to ADI on its 60th year as a forerunner in technology. Wishing the company continued success and innovation in the years ahead.
 
 Thank you again—for everything.
+
+
+## 24 April
+
+**"You may now kiss the bride!"**
+
+My dearest Cassidy,
+
+This is it—it’s time. The day you once thought would never come has finally arrived.
+
+I clearly remember the days when we would sit along the Centennial Walkway, watching the sun set over the Big Field. We would usually braid each other's hair, prick each other's pimples, or just wonder where we should eat dinner. Our conversations would typically cross the line of how our day went, what the latest "verbal" teas were, a number of deep philosophical questions that were podcast-worthy (and they still are), and hard-to-answer questions such as why you didn’t have a boyfriend yet. That question would haunt you for years, and for years, we wouldn’t know the answer.
+
+We grew close together. After our uni days, we both shared our first company. We’d go on dates on Monday evenings—either to have our nails or hair done at a salon in SM Dasmariñas, watch a movie, and then eat at a restaurant that stayed open late. As if that wasn’t enough, we would routinely go to each other’s cubes at work if our shifts aligned, and we would take lunch together or talk over afternoon coffee.
+
+One time, I saw you brokenhearted and broken like never before, as if you had run out of chances at life. With a dejected face, you said, “Tati, sa point na ’to, okay na lang sakin mag-adopt, or kumuha ng sperm donor. Kahit anak na lang, okay na sakin.”
+
+We both know you wanted more than that. What an ache it would have been had you not waited a few more months.
+
+Thank God you did.
+
+Then came Lanz. He was something—he was different. He was a breath of fresh air.
+
+You are more than just a friend—you are my sister from another mother. What hurts you, hurts me too; and what makes you glad fills my heart as well. I have seen how much Lanz has added to your life, and how colorful you’ve made his. Yours is a match made in heaven, and it can be attested by the amount of peace surrounding both of you. Your life had been bitter and hard, but these past years—though not devoid of hardships—I know for a fact that both of you cultivated a life full of love, trust, and joy.
+
+You will be called blessed, just like Naomi’s Ruth, for you had been faithful until your Boaz came. May you be blessed among women, and may your future kids know what an able, resilient, strong, fun, and quick-witted woman their mom is. And I hope and pray they will take after you.
+
+Although some would say that your love story has been a whirlwind, I would argue that it’s a God-ordained one—and one for the books. Yours is a testimony of how God orchestrates someone’s love story, making everything happen all in the right time. It has never ceased to amaze me, and I find it encouraging that I share your testimony with my newfound single friends, saying that God still redeems and makes miracles happen—even up to this present day.
+
+**Lanz,**
+
+I have never seen her bloom the way she bloomed when she started seeing you. Yes, bloom she did—she always donned that smile, the one that you know came from the depths of her heart—so serene and pure. You gave her the security she hadn’t felt for quite some time. See, before you came and swept her off her feet, she was always up on her toes…
+
+Lanz, huwag sana lumaki ulo mo sa sasabihin ko, pero you are the answer to her decades-long prayers. Thank you for taking care of her—she can finally breathe. Thank you for loving her unconditionally, as she should be loved. She was always the one who gave, and it’s high time for her to receive love. I am sure she has guarded her heart all these years, safe-keeping her love for her “future” husband. Now, she has a lifetime to pour it all on you and your future family. Her prayers have been answered—please continue to be the Boaz to her Ruth.
+
+**My dearest Cassey,**
+
+I may not be there, but I hope you can feel my love and joy for you through the screen. May it overflow to you in the form of a bouquet—just like three years ago, on that fateful day of March 18, at the courthouse in Trece Martires. May you continue to bloom just like these flowers, and may you have your happily ever after.
+
+Forgive my physical absence on this important milestone, but wherever we are in the world, I will continue to rejoice, mourn, and celebrate with you in everything.
+
+I love you.
