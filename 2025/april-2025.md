@@ -112,38 +112,56 @@ Thank you again—for everything.
 
 **"You may now kiss the bride!"**
 
-My dearest Cassidy,
+**My dearest Cassidy,**
 
 This is it—it’s time. The day you once thought would never come has finally arrived.
 
-I clearly remember the days when we would sit along the Centennial Walkway, watching the sun set over the Big Field. We would usually braid each other's hair, prick each other's pimples, or just wonder where we should eat dinner. Our conversations would typically cross the line of how our day went, what the latest "verbal" teas were, a number of deep philosophical questions that were podcast-worthy (and they still are), and hard-to-answer questions such as why you didn’t have a boyfriend yet. That question would haunt you for years, and for years, we wouldn’t know the answer.
+I still remember the days we’d sit along the Centennial Walkway, watching the sun set over the Big Field. We’d braid each other’s hair, pop each other’s pimples—yes, we really loved each other like that—and wonder where we should eat for dinner.
 
-We grew close together. After our uni days, we both shared our first company. We’d go on dates on Monday evenings—either to have our nails or hair done at a salon in SM Dasmariñas, watch a movie, and then eat at a restaurant that stayed open late. As if that wasn’t enough, we would routinely go to each other’s cubes at work if our shifts aligned, and we would take lunch together or talk over afternoon coffee.
+Our conversations would bounce from how our day went, to the latest “verbal” teas, to deep philosophical questions that are podcast-worthy... and then to the ultimate mystery you asked about for years: why you didn’t have a boyfriend yet. That question haunted you for so long. And honestly, we never found the answer back then.
 
-One time, I saw you brokenhearted and broken like never before, as if you had run out of chances at life. With a dejected face, you said, “Tati, sa point na ’to, okay na lang sakin mag-adopt, or kumuha ng sperm donor. Kahit anak na lang, okay na sakin.”
+We grew up together. After uni, we shared our first company. We’d go on dates on Monday evenings—getting our hair or nails done in SM Dasma, catching a movie, and eating late-night dinner like we had no work the next day. As if that wasn’t enough, we would routinely visit each other’s workstations if our shifts aligned, and we’d have lunch together or talk over afternoon coffee.
 
-We both know you wanted more than that. What an ache it would have been had you not waited a few more months.
+One time, I saw you brokenhearted—broken like never before, as if you had run out of chances at life. With a dejected face, you said to me, “Tati, sa point na ’to, okay na lang sakin mag-adopt... or kumuha ng sperm donor. Kahit anak na lang, okay na sakin.”
+
+Both our hearts knew you wanted more than that. And what an ache it would have been had you not waited just a few more months.
 
 Thank God you did.
 
-Then came Lanz. He was something—he was different. He was a breath of fresh air.
+Then Lanz came into the picture. And he was something else. He was different. He was… a breath of fresh air.
 
-You are more than just a friend—you are my sister from another mother. What hurts you, hurts me too; and what makes you glad fills my heart as well. I have seen how much Lanz has added to your life, and how colorful you’ve made his. Yours is a match made in heaven, and it can be attested by the amount of peace surrounding both of you. Your life had been bitter and hard, but these past years—though not devoid of hardships—I know for a fact that both of you cultivated a life full of love, trust, and joy.
+Cass, you’re not just a friend to me—you’re my sister from another mother. What hurts you, hurts me too; and what makes you glad fills my heart as well. I have seen how much Lanz has added to your life, and how colorful you’ve made his.
 
-You will be called blessed, just like Naomi’s Ruth, for you had been faithful until your Boaz came. May you be blessed among women, and may your future kids know what an able, resilient, strong, fun, and quick-witted woman their mom is. And I hope and pray they will take after you.
+Yours is a match made in heaven—and I say that not as a cliché, but because of the peace I see between you two.
 
-Although some would say that your love story has been a whirlwind, I would argue that it’s a God-ordained one—and one for the books. Yours is a testimony of how God orchestrates someone’s love story, making everything happen all in the right time. It has never ceased to amaze me, and I find it encouraging that I share your testimony with my newfound single friends, saying that God still redeems and makes miracles happen—even up to this present day.
+Your life hasn’t been easy. It’s been bitter and hard. But over the past few years—though not devoid of hardships—you and Lanz have built a life that is strong, joyful, and full of love.
+
+You will be called blessed, just like Naomi’s Ruth. You remained faithful until your Boaz came. May you be blessed among women, and may your future children know what an able, resilient, strong, fun, and quick-witted woman their mother is. I hope and pray they take after you.
+
+Some may say your love story was fast—but I say it was right on time. Yours is a testimony of how God orchestrates the best stories, always in His perfect timing. I find it truly encouraging that I’ve shared your story with friends who are still waiting—because yours proves that God still redeems, still surprises, and still writes the best love stories… even today.
+
+---
 
 **Lanz,**
 
-I have never seen her bloom the way she bloomed when she started seeing you. Yes, bloom she did—she always donned that smile, the one that you know came from the depths of her heart—so serene and pure. You gave her the security she hadn’t felt for quite some time. See, before you came and swept her off her feet, she was always up on her toes…
+I’ve never seen her bloom the way she did when she started seeing you. And bloom she did—wearing that smile you know comes from deep within, calm and full of light. You gave her a sense of safety she hadn’t felt in a long time. Before you came and swept her off her feet, she was always up on her toes…
 
-Lanz, huwag sana lumaki ulo mo sa sasabihin ko, pero you are the answer to her decades-long prayers. Thank you for taking care of her—she can finally breathe. Thank you for loving her unconditionally, as she should be loved. She was always the one who gave, and it’s high time for her to receive love. I am sure she has guarded her heart all these years, safe-keeping her love for her “future” husband. Now, she has a lifetime to pour it all on you and your future family. Her prayers have been answered—please continue to be the Boaz to her Ruth.
+Lanz, huwag sana lumaki ulo mo sa sasabihin ko, but you are the answer to her decades-long prayers. Thank you for giving her space to finally breathe. Thank you for loving her unconditionally—the way she’s always deserved. She’s always been the one to give love so freely. Now, she finally gets to receive that love in return.
 
-**My dearest Cassey,**
+She’s saved the best parts of her heart for this moment—for you, and the life you’re about to build. Please keep being her Boaz. She’ll pour her whole heart into this marriage—I know she will.
 
-I may not be there, but I hope you can feel my love and joy for you through the screen. May it overflow to you in the form of a bouquet—just like three years ago, on that fateful day of March 18, at the courthouse in Trece Martires. May you continue to bloom just like these flowers, and may you have your happily ever after.
+I bet that, in different circumstances, Tito Jildine and Tita Barbara would’ve had a hard time giving Cassey away, knowing how deeply they love her. But if they had the chance to know you personally, that handover would be bittersweet—bitter, because they’d be giving their darling away; sweet, because they’d know what a good man she’s going to.
 
-Forgive my physical absence on this important milestone, but wherever we are in the world, I will continue to rejoice, mourn, and celebrate with you in everything.
+But knowing Cassey, she carries them with her today—in her heart, in her smile, and in the way she chose you. And I know they’d be proud of her, of the woman she’s become, and of the love she’s about to walk into.
+
+---
+
+**Cass, my love,**
+
+Even though I’m not there in person, I hope you feel all the love and joy I’m sending through the screen. May it reach you like a bouquet—just like the one you held on that day three years ago, on March 18 at the courthouse in Trece Martires.
+
+May you continue to bloom like these flowers. May this be the beginning of your happily ever after.
+
+No matter where we are in the world, I’ll always be here for you—rejoicing, mourning, celebrating, and walking alongside you.
 
 I love you.
