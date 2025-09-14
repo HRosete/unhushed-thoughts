@@ -1,5 +1,7 @@
 ## 11 September
 
+### Charlie Kirk
+
 How ironic this day has been. Every second Thursday of September is celebrated as R U OK? Day in Australia. Never would I have imagined that Ken and I would be asking ourselves that to check how we are holding up to the assassination of a prominent Christian political figure: Charlie Kirk.
 
 Never have I been more impacted by the death of a prominent figure, let alone a political activist. I was never drawn to that social area; however, these dark, confusing, and anxiety-ridden days got me thinking about it often. Charlie Kirk has been a beacon of light piercing through the darkness. He faced it head-on, engaging students in conversations they would often be afraid to talk about even with their peers for fear of division and misunderstanding. What sets Charlie apart is his deep and wholehearted faith in Jesus Christ, which he brings into every conversation, aligning his political views with Biblical standpoints. He advocates for Christ, first and foremost, eager to bring his beloved country back to Him one campus at a time.
