@@ -1,0 +1,9 @@
+## 4 October
+
+I have no words for what God is doing in our lives—Ken and me, my birth family, and everyone we meet each day. Ever since the fire was ignited in us by Charlie's death, Ken and I have become more serious in our walk with Christ. Not that we weren’t before, but recently it feels as though we’re preparing for a battle we know is drawing near. We study and train our minds, filling them with the Word of God.
+
+Recently, God has lovingly convicted us to take better care of our bodies. Ever since I watched a reel explaining what it means to be made in the image of God, the way I see my body changed. In the clip, a woman was speaking to a man in a fireside chat setup. He asked her if he was spiritually empty. She then clarified a common misunderstanding about being filled with the Holy Spirit. She explained that we are made in the image of God in the same way a glove is made in the image of a hand. A glove on its own is useless, but when filled by a hand, it becomes extremely useful.
+
+I then had a revelation: you can fill the glove with anything other than a hand, and yes, it will be filled, but it still will not be useful. It will be full, but not useful. It will be misshapen and eventually burst. Just like our bodies: we can try to fill the God-shaped hole with anything but Him, and we will still feel empty and useless. However, if we allow the Holy Spirit to fill us, we will reach our full potential and become of great use to the Kingdom of God.
+
+Moreover, this drove the proverb “our body is the temple of the Holy Spirit” deeper into my mind and cemented it in my spirit. If I eat to the contentment of my heart -- which, by the way, is deceitful on its own -- I would be doing the temple a great disservice by filling it with rubbish. If I truly value and love the Lord, wouldn’t I keep everything tidy and in good shape to make the temple clean, orderly, and fit for a King? Wouldn’t I?
