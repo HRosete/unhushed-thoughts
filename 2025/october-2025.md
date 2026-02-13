@@ -7,3 +7,11 @@ Recently, God has lovingly convicted us to take better care of our bodies. Ever 
 I then had a revelation: you can fill the glove with anything other than a hand, and yes, it will be filled, but it still will not be useful. It will be full, but not useful. It will be misshapen and eventually burst. Just like our bodies: we can try to fill the God-shaped hole with anything but Him, and we will still feel empty and useless. However, if we allow the Holy Spirit to fill us, we will reach our full potential and become of great use to the Kingdom of God.
 
 Moreover, this drove the proverb “our body is the temple of the Holy Spirit” deeper into my mind and cemented it in my spirit. If I eat to the contentment of my heart -- which, by the way, is deceitful on its own -- I would be doing the temple a great disservice by filling it with rubbish. If I truly value and love the Lord, wouldn’t I keep everything tidy and in good shape to make the temple clean, orderly, and fit for a King? Wouldn’t I?
+
+---
+
+Unknowingly, I was raised a Feminist.
+
+I was raised to aim high and achieve.
+
+I was brought up to put career on a pedestal
