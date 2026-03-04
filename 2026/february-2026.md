@@ -7,7 +7,7 @@ My innards shiver.
 You then held me tight,
 and brought peace like a river.
 
-You quipped me with quiver and bow;
+You armed me with quiver and bow;
 Instructed me to keep real close.
 "My Word will be your arrow,
 Without me, you'll lose."
