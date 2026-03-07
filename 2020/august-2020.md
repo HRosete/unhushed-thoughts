@@ -2,18 +2,18 @@
 
 ### Heal
 
-Oh, to heal is bliss!\
-A path oh so coveted,\
-yet people always miss.\
-It's a faint hope glistening\
-to a lost heart wandering.\
-An end-of-the-tunnel beckoning\
+Oh, to heal is bliss!<br>
+A path oh so coveted,<br>
+yet people always miss.<br>
+It's a faint hope glistening<br>
+to a lost heart wandering.<br>
+An end-of-the-tunnel beckoning<br>
 to a pained sojourner searching.
 
-To heal—to fully deeply heal,\
-to mend a once red-hot heart\
-which became a cold-bluish teal—\
-is a journey lesser taken,\
+To heal—to fully deeply heal,<br>
+to mend a once red-hot heart<br>
+which became a cold-bluish teal—<br>
+is a journey lesser taken,<br>
 but one I really long to feel.
 
 — by yours truly 🤍
