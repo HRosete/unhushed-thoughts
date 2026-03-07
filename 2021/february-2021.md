@@ -1,6 +1,6 @@
 ## february 16
 
-A conversation:
+### Points of View
 
 With his eyes cast down, he asked, "Then how would you know if you've been completely healed?"
 
