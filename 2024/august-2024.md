@@ -7,7 +7,11 @@ Hello there, how have you been? If you are asking me back, yes, I am good. Not j
 
 ### August Has Come to Pass
 
-And just like that, the eighth month of the year has passed. The barren trees are blooming again, the flowers are donning their petals, and the sun is painting golden hues across the sky. Another season has passed, and another one begins, just like how they ebb for years. I have pondered a lot and am still pondering while nearing the edge of my season that will be brought to a still. I learned, I loved, I cried; encouraged, wept, and sighed. But in the end, I find myself smiling with content, grateful that my Creator has brought me on this bend. Indeed, rejections are His redirections, and sometimes I still have to remind myself of this when my worries are filling my cup to the brim.
+And just like that, the eighth month of the year has passed. The barren trees are blooming again, the flowers are donning their petals, and the sun is painting golden hues across the sky. Another season has passed and another begins, just as they have ebbed for years.
+
+I have pondered much and am pondering still as I near the edge of a season that will soon be brought to a standstill. I learned, I loved, I cried; I encouraged, wept, and sighed.
+
+But in the end, I find myself smiling with contentment, grateful that my Creator has brought me to this bend. Indeed, rejections are His redirections—a truth I still have to remind myself of when worries fill my cup to the brim.
 
 
 ### Home Away From Home
