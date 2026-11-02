@@ -13,25 +13,23 @@ Yet, it's the only big girl job that I knew of aside from tutoring. Thus, I stil
 
 # 13 September
 
-Living the life Christ has given us entails faith and surrender.
+Living the life Christ has given us entails faith and total surrender.
 
-You can't have faith until you surrender.
+You can't surrender until you trust Christ.
 
-You can't surrender until you trust the One you're surrendering to.
+You can't trust Christ until you know Him deeply.
 
-You can't trust someone without knowing them deeply.
+You won't know Him deeply until you spend time with Him.
 
-You can't know someone deeply without spending quality time with them.
-
-You can't spend time with someone until you learn to be still.
+You won't be able to spend time with Him until you are still.
 
 "Be still," God instructs, "and know that I am God."
 
-So I encourage you to be still, and spend some time with Jesus.
+Therefore, I implore you: Be still. Spend precious time with Jesus.
 
-Know Him by reading the Word; start wit the book of John.
+Know Him through reading the Word; the Gospel of John is a great start.
 
-Call on Him, and He will meet you there.
+Call on Him, and He will meet you wherever you are.
 
 
 # 17 September
