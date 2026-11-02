@@ -32,3 +32,14 @@ Due to my constant phone scrolling, I have abandoned all the creative hobbies th
 In light of this, Lord, I would like to partake in the Daniel Fast: 21 days of diving into Your word, eating only vegetables and drinking water. This will be hard, but I am at the end of my rope. I want to be free. I want to seek You clearly. I want to long for You, Lord Jesus, and nothing else. I would like to prepare and start the fast on 13 September, after the birthday celebrations and festivities. Please show me what to prepare, what to expect, and what to do afterwards, Lord. I pray that You'll impart to me the grace to finish this, and the strength to turn from temptation and stand strong.
 
 P.S. All I can see is the number 40 and the picture of Jesus in the wilderness. Help me to do this for 40 days, Lord.
+
+
+# xx August
+
+(originally written 6 August)
+
+Jesus saved my career while I was in the bathroom showering.
+
+Let me explain.
+
+
